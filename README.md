@@ -3,5 +3,5 @@
 ### *Dar*yn France Elaine > Malate
 > Cararayan, Naga City
 ---
-Be my friend !! ⤵
+Be my friend !! ⤸
 [Instagram] (https://www.instagram.com/darrsz_/)
