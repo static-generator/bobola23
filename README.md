@@ -1,6 +1,6 @@
-# bobola23
+# Bobola
 ## CN 23
-### *Dar*yn France Elaine > Malate
+### Daryn France Elaine Malate 
 
 
 Be my friend !! ⤸
