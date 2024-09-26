@@ -1,6 +1,6 @@
 # Bobola
-## CN 23
-### Daryn France Elaine Malate 
+## All About **Dar** *!!*
+### *Daryn France Elaine A. Malate*
 
 
 Be my friend !! ⤸
